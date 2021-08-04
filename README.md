@@ -1,7 +1,5 @@
-# NARESH PRACTICE
-Second line for Under standing
-Welcome.
-Hi how are you
-I am good how about you
-I am good Thanks for asking
-
+6468588906 Naresh Phone number
+6464689127 Naveen Phone number
+9666575757 Naresh India Number
+9703006031 Nana Number
+9703510564 Amma Number
